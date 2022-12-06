@@ -1,2 +1,3 @@
 # briyangfrj
-AKU sayang kamu
+yoloooo
+
